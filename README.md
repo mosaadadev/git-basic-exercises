@@ -1,2 +1,0 @@
-Mosa Ramosa 
-Coder
